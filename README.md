@@ -1,7 +1,8 @@
 # DEVOPS1
 
 
-HI HOW R U !
+
+HI HARSHA AND JAIPAL HOW R U
 
 
-he w r  u
+I AM FINE
